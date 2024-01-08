@@ -1,0 +1,1 @@
+Politique de confidentialitê de Akalan
